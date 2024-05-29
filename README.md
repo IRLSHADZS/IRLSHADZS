@@ -1,6 +1,6 @@
 IRL shadow. 
 
-ELECTRIC GUITAR PLAYER!
+
 ![image](https://github.com/IRLSHADZS/IRLSHADZS/assets/125523593/29773054-11b8-4c07-89ec-7524edf0e5b3)
 
 MUSIS ARTIST!
