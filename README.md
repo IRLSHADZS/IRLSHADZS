@@ -13,6 +13,3 @@ GET TO KNOW ME, talk to me. I'm a bit friendly.
 
 warning I have a temper!!
 
-I have my own shadow design!  (example on me and my partners SONIC&SHADOW desgins below.)
-![sily](https://github.com/IRLSHADZS/IRLSHADZS/assets/125523593/4ebe2b67-cf3d-4dc5-996f-3a7d46d04799)
-drawn by my bf.
